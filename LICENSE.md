@@ -1,0 +1,1 @@
+Software libre de uso, copia y distribución.
